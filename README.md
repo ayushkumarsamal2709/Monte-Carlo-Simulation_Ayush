@@ -5,7 +5,7 @@
 **Ayush Kumar Samal**  
 Department of Physics, Sri Sathya Sai Institute of Higher Learning  
 Prasanthi Nilayam, Andhra Pradesh, India  
-`25010204004`
+
 
 </div>
 
